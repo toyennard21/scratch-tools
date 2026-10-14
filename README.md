@@ -1,9 +1,11 @@
 ## blame my logokid sister for making this
-anyways she insisted me to fork this repo because they 
-like to use scratch and they want to see who unfollowed
+anyways she insisted me to fork this repo because she 
+likes to use scratch and she wants to see who unfollowed
 them because she is a crybaby but lowk I have used 
 scratch for a while BUT IT SUCKS AS HELL, IT'S WORSE
 THAN REDDIT BTW
+
+I dont even know how she can handle all that pressure
 
 ## ANYWAYSSSSSSS!!!!!!
 
