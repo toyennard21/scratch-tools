@@ -1,2 +1,12 @@
-## Welcome!
-I'm making an all new website with my tools for scratch. Now, you can find the old version on https://juegostrower.github.io . The source code of the new version is not published yet. It's schuduled to by released between march and may. At this point, I removed all the old tools on the home of the website, letting only the very good ones. If you need one of the old ones, look for it on github or contact me on Scratch. When the new website is ready, the old one will be removed.
+## blame my logokid sister for making this
+anyways she insisted me to fork this repo because they 
+like to use scratch and they want to see who unfollowed
+them because she is a crybaby but lowk I have used 
+scratch for a while BUT IT SUCKS AS HELL, IT'S WORSE
+THAN REDDIT BTW
+
+## ANYWAYSSSSSSS!!!!!!
+
+I'm deleting this repo pretty soon, im
+replacing it either with a school bypass
+or a fnaf fan game inspired by five nights at winston's
